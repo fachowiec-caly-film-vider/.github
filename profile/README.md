@@ -1,3 +1,3 @@
 ## .github
 
-Oglądaj Fachowiec (2025) cda cały film za darmo - Fachowiec Film Online HD po polsku, 
+Oglądaj Fachowiec (2025) cda cały film za darmo - Fachowiec Film Online HD po polsku, Fachowiec caly film cda. 
